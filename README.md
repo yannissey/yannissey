@@ -1,16 +1,19 @@
-## Hi there 👋
+hi hi !!
 
-<!--
-**yannissey/yannissey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="400" height="70" alt="image" src="https://github.com/user-attachments/assets/d4a59e18-da64-47fa-b9aa-f4bcb373a79a" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+info about me .
+
+- my name is yana
+- 16 y.o.
+- ukranian
+- INFP-T , introvert
+
+  my music taste :
+
+  main - the beatles, paul mccartney / wings , george harrison , the smiths , morrissey , tyler, the creator
+  other - TV girl , elvis presley , john lennon , ringo starr , queen , tame impala , radiohead , abba , the garden / puzzle / enjoy , bob dylan , the beach boys , panchiko , the ronnettes , jeff buckley , david bowie , basically oldies / 50s music
+
+- discord / tiktok / telegramm - yannissey
+- insta / tumblr - yannisseyy
