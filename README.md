@@ -19,7 +19,7 @@ info about me .
 
 ### 🎧 Currently listening on Spotify
 
-![Recently Played](https://lastfm-recently-played.vercel.app/api?user=yannissey)
+![Recently Played](https://lastfm-recently-played.vercel.app/api?user=yannissey&count=8&cover_size=small&theme=dark)
 
 
 - discord / tiktok / telegramm / airbuds- @yannissey
