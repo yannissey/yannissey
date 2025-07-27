@@ -20,7 +20,8 @@ info about me .
 
 ![Recently Played](https://lastfm-recently-played.vercel.app/api?user=yannissey&count=8&cover_size=small&theme=dark)
 
-<img width="99" height="56" alt="tumblr_9c13f7bec0f5ec14a9d183ad42d9f1e2_b1788ce7_100" src="https://github.com/user-attachments/assets/92ca4cf2-a69c-4a23-b944-d85216705f89" />  
+
+<img width="107" height="65" alt="image" src="https://github.com/user-attachments/assets/32b44a62-211b-4ed5-8be1-69fb204c4191" />
 
 
 - discord / tiktok / telegramm / airbuds- @yannissey
