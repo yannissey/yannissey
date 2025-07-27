@@ -17,5 +17,8 @@ info about me .
   main - the beatles, paul mccartney / wings , george harrison , the smiths , morrissey , tyler, the creator
   other - TV girl , elvis presley , john lennon , ringo starr , queen , tame impala , radiohead , abba , the garden / puzzle / enjoy , bob dylan , the beach boys , panchiko , the ronnettes , jeff buckley , david bowie , basically oldies / 50s music
 
-- discord / tiktok / telegramm - yannissey
-- insta / tumblr - yannisseyy
+<img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/ffbd15ae-588d-441e-ac01-872fa80d84e8" />
+
+
+- discord / tiktok / telegramm / airbuds- @yannissey
+- insta / tumblr - @yannisseyy
