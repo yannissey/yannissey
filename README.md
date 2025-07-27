@@ -17,10 +17,7 @@ info about me .
   main - the beatles, paul mccartney / wings , george harrison , the smiths , morrissey , tyler, the creator
   other - TV girl , elvis presley , john lennon , ringo starr , queen , tame impala , radiohead , abba , the garden / puzzle / enjoy , bob dylan , the beach boys , panchiko , the ronnettes , jeff buckley , david bowie , basically oldies / 50s music
 
-  ![Last.fm](https://github-readme-lastfm.vercel.app/api?user=yannissey)
-
-
-<img width="230" height="30" alt="image" src="https://github.com/user-attachments/assets/ffbd15ae-588d-441e-ac01-872fa80d84e8" />
+  ![Last.fm](https://github-readme-lastfm.vercel.app/api?user=yannissey) <img src="https://github-readme-lastfm.vercel.app/api?user=yannissey" alt="Last.fm Now Playing" width="400" />
 
 
 - discord / tiktok / telegramm / airbuds- @yannissey
