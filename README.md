@@ -10,6 +10,8 @@ info about me .
 - ukranian
 - INFP-T , introvert
 
+  dni - basic dni criteria + if you support r*ssia / p*tin
+
   my music taste :
 
   main - the beatles, paul mccartney / wings , george harrison , the smiths , morrissey , tyler, the creator
