@@ -1,7 +1,6 @@
 hi hi !!
 
-<img width="400" height="70" alt="image" src="https://github.com/user-attachments/assets/d4a59e18-da64-47fa-b9aa-f4bcb373a79a" />
-
+![fatterstrawberries](https://github.com/user-attachments/assets/1cf0c3c3-04d3-43ef-a765-5262864d379c)
 
 info about me .
 
@@ -11,6 +10,7 @@ info about me .
 - INFP-T , introvert
 
   dni - basic dni criteria (prosshipers , homophobic , ect...) + if you're under 13
+  
   my music taste :
 
   main - the beatles, paul mccartney / wings , george harrison , the smiths , morrissey , tyler, the creator
