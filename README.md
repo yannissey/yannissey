@@ -14,6 +14,7 @@ info about me .
   my music taste :
 
   main - the beatles, paul mccartney / wings , george harrison , the smiths , morrissey , tyler, the creator
+  
   other - TV girl , elvis presley , john lennon , ringo starr , queen , tame impala , radiohead , abba , the garden / puzzle / enjoy , bob dylan , the beach boys , panchiko , the ronnettes , jeff buckley , david bowie , basically oldies / 50s music
 
 ### 🎧 Recently Played
