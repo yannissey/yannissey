@@ -30,4 +30,4 @@ info about me .
 
 
 - discord / tiktok / telegramm / airbuds- @yannissey
-- insta / tumblr - @yannisseyy
+- tumblr - @yannisseyy
