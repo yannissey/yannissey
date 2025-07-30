@@ -10,6 +10,7 @@ info about me .
 - INFP-T , introvert
 
 i like - music , beatles , kind people , MLP , drawing
+
 i dislike - anime , people with a bad music taste , russia supporters , religious people
 
 dni - basic dni criteria (prosshipers , homophobic , ect...) + if you're under 13
