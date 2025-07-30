@@ -1,6 +1,7 @@
 hi hi !!
 
-![fatterstrawberries](https://github.com/user-attachments/assets/1cf0c3c3-04d3-43ef-a765-5262864d379c)
+![fba4171050bb27b920f4130df9ff6446](https://github.com/user-attachments/assets/83d4621f-1ad2-45c7-8bf9-66636829d8fe)
+
 
 info about me .
 
@@ -9,7 +10,13 @@ info about me .
 - ukranian
 - INFP-T , introvert
 
-  dni - basic dni criteria (prosshipers , homophobic , ect...) + if you're under 13
+i like - music , beatles , kind people , MLP , drawing
+i dislike - anime , people with a bad music taste , russia supporters , religious people
+
+dni - basic dni criteria (prosshipers , homophobic , ect...) + if you're under 13
+
+<img width="400" height="54" alt="5b70846a" src="https://github.com/user-attachments/assets/eba772d8-2ad2-4cb4-9f74-efb9d7a85d94" />
+
   
   my music taste :
 
@@ -27,7 +34,5 @@ info about me .
 
 
 
-
-
-- discord / tiktok / telegramm / airbuds- @yannissey
+- discord / tiktok / airbuds- @yannissey
 - tumblr - @yannisseyy
