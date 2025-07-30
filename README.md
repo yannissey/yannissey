@@ -1,6 +1,6 @@
 hi hi !!
 
-![fba4171050bb27b920f4130df9ff6446](https://github.com/user-attachments/assets/83d4621f-1ad2-45c7-8bf9-66636829d8fe)
+<img width="995" height="442" alt="Снимок экрана 2025-07-30 043538" src="https://github.com/user-attachments/assets/99861ed1-cd5a-47ad-a5b9-6e089aa3c928" />
 
 
 info about me .
