@@ -1,7 +1,6 @@
 hi hi !!
 
-<img width="995" height="442" alt="Снимок экрана 2025-07-30 043538" src="https://github.com/user-attachments/assets/99861ed1-cd5a-47ad-a5b9-6e089aa3c928" />
-
+<img width="1052" height="371" alt="Снимок экрана 2025-07-30 043712" src="https://github.com/user-attachments/assets/eb1248b3-aca0-4584-91a3-f38196b99822" />
 
 info about me .
 
