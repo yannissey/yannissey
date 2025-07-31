@@ -8,15 +8,16 @@ info about me .
 - 16 y.o.
 - ukranian
 - INFP-T , introvert
+- i love oldies and everything vintage. i collect records and CDs. 
+- my current hyperfixation are the quarrymen / the silver beatles (pre-beatles) from 1957 to the 1962. i love teddy boy paul A LOT.
 
-i like - music , beatles , kind people , MLP , drawing
+i like - music , beatles , kind people , MLP , drawing , 50s-80s
 
-i dislike - anime , people with a bad music taste , russia supporters , religious people
+i dislike - anime , people with a bad music taste , russia supporters , religious people 
 
 dni - basic dni criteria (prosshipers , homophobic , ect...) + if you're under 13
 
-<img width="400" height="54" alt="5b70846a" src="https://github.com/user-attachments/assets/eba772d8-2ad2-4cb4-9f74-efb9d7a85d94" />
-
+<img width="400" height="54" alt="5b70846a" src="https://github.com/user-attachments/assets/6c95a6a1-c411-4978-8593-4130ff2c40c6" />
   
   my music taste :
 
