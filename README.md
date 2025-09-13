@@ -4,7 +4,7 @@ hi hi !!
 
 info about me .
 
-- my name is yana
+- my name is yana aka yannissey
 - 16 y.o.
 - ukranian
 - INFP-T , introvert
