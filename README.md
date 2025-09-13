@@ -10,6 +10,7 @@ info about me .
 - INFP-T , introvert
 - i love oldies and everything vintage. i collect records and CDs. 
 - my current hyperfixation are the quarrymen / the silver beatles (pre-beatles) from 1957 to the 1962. i love teddy boy paul A LOT.
+- feel free to write me on discord @yannissey
 
 i like - music , beatles , kind people , MLP , drawing , 50s-80s
 
@@ -35,5 +36,5 @@ dni - basic dni criteria (prosshipers , homophobic , ect...) + if you're under 1
 
 
 
-- discord / tiktok / airbuds- @yannissey
+- tiktok / airbuds- @yannissey
 - tumblr - @yannisseyy
