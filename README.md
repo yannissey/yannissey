@@ -5,12 +5,12 @@ hi hi !!
 info about me .
 
 - my name is yana aka yannissey
-- 16 y.o.
-- ukranian
-- INFP-T , introvert
+- 17 y.o.
+- ukranian , pro russ/ pro c0mmunism DNI 
+- INFP-T 
 - i love oldies and everything vintage. i collect records and CDs. 
 - my current hyperfixation are the quarrymen / the silver beatles (pre-beatles) from 1957 to the 1962. i love teddy boy paul A LOT.
-- feel free to write me on discord @yannissey
+- feel free to write me on discord @yannissey idk
 
 i like - music , beatles , kind people , MLP , drawing , 50s-80s
 
