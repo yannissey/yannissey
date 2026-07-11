@@ -1,4 +1,4 @@
-hi hi !!
+hi hi !! ty for visiting
 
 <img width="1052" height="371" alt="Снимок экрана 2025-07-30 043712" src="https://github.com/user-attachments/assets/eb1248b3-aca0-4584-91a3-f38196b99822" />
 
@@ -6,13 +6,13 @@ info about me .
 
 - my name is yana aka yannissey
 - 17 y.o.
-- ukranian , pro russ/ pro c0mmunism DNI 
+- im ukranian , pro russ/ pro communism DNI 
 - INFP-T 
-- i love oldies and everything vintage. i collect records and CDs. 
-- my current hyperfixation are the quarrymen / the silver beatles (pre-beatles) from 1957 to the 1962. i love teddy boy paul A LOT.
-- feel free to write me on discord @yannissey idk
+- i love oldies and everything vintage
+- my current hyperfixation are the quarrymen / the silver beatles (pre-beatles) from 1957 to 1962
+- feel free to write me on discord @yannissey if u wanna be friends idm 👀
 
-i like - music , beatles , kind people , MLP , drawing , 50s-80s
+i like - music , beatles , kind people , MLP , drawing , 1950s-60s
 
 i dislike - anime , people with a bad music taste , russia supporters , religious people 
 
@@ -22,9 +22,9 @@ dni - basic dni criteria (prosshipers , homophobic , ect...) + if you're under 1
   
   my music taste :
 
-  main - the beatles, paul mccartney / wings , george harrison , the smiths , morrissey , tyler, the creator
+  main - the beatles, paul mccartney / wings , george harrison , the smiths , morrissey , tyler, the creator , the garden / puzzle / enjoy , TV girl
   
-  other - TV girl , elvis presley , john lennon , ringo starr , queen , tame impala , radiohead , abba , the garden / puzzle / enjoy , bob dylan , the beach boys , panchiko , the ronnettes , jeff buckley , david bowie , basically oldies / 50s music
+  other -  elvis presley , john lennon , ringo starr , queen , tame impala , radiohead , the beach boys , panchiko , basically oldies / 50s music
 
 ### 🎧 Recently Played
 
