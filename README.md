@@ -9,7 +9,8 @@ info about me .
 - im ukranian , pro russ/ pro communism DNI 
 - INFP-T 
 - i love oldies and everything vintage
-- my current hyperfixation are the quarrymen / the silver beatles (pre-beatles) from 1957 to 1962
+- my current hyperfixation are the quarrymen / the silver beatles 
+- im VERY pro mclennon
 - feel free to write me on discord @yannissey if u wanna be friends idm 👀
 
 i like - music , beatles , kind people , MLP , drawing , 1950s-60s
